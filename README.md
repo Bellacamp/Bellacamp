@@ -9,4 +9,4 @@ Utilizo esse espaço para minha organização e compartilhamento dos meu projeto
 
 ## Você pode entrar em contato comigo 📫
 alurastartestudante@email.com
-![](https://media1.tenor.com/m/hzFHhdvD3lAAAAAd/gato-joia.gif)
+![](https://media1.tenor.com/m/eMvKG8uJvLYAAAAC/cat-jojo.gif)
